@@ -1,2 +1,1 @@
-# linko
-dasfgfvsdxgvsd
+# pinko1-modelo
